@@ -1,0 +1,1 @@
+O curso esta ate o momento o curso esta sendo bem proveitoso, as introduções aos assunto são muito didaticas.
